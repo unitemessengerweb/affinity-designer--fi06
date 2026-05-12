@@ -1,4 +1,4 @@
-# 
+# Enhance Affinity Designer for PC | Affinity Designer for Windows with Affinity Designer for PC | Affinity Designer for Windows new Extension: vector-drawing & symbol-libraries,
 
 
 
